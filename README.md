@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @joachim62
-- 👀 I’m interested in learning more relevant knowledge in this field
+- 👀 I
 - 🌱 I’m currently pursuing my 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
